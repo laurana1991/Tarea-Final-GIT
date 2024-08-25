@@ -1,0 +1,1 @@
+inicializando el archivo testinginfo
