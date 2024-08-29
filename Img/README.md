@@ -1,0 +1,1 @@
+Documentamos a traves de imagenes el conflicto
